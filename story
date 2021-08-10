@@ -1,0 +1,1 @@
+One day when a monkey was climbing a tree in the forest in which he lived, he ran a thorn into his tail
