@@ -1,1 +1,2 @@
 One day when a monkey was climbing a tree in the forest in which he lived, he ran a thorn into his tail
+Try as he would, he could not get it out, so he went to a barber in the town and said: ... The barber could not put back the end of the monkey's tail, so he gave him his razor.
